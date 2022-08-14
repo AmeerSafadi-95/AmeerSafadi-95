@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AmeerSafadi-95
+- 👀 I’m interested in Hi-tech job
+- 🌱 I’m currently learning Computer software
+- 📫 contact me -> https://www.linkedin.com/in/ameersafadi-1995/
